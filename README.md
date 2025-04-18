@@ -1,2 +1,2 @@
 # santiago
-Roteiro viagem
+Roteiro 6 dias em Santiago chile
